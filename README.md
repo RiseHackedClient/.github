@@ -1,2 +1,1 @@
-# .github
-rize hake $$$
+block gaem cheet https://riseclient.com/
